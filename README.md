@@ -1,1 +1,1 @@
-# magical_meb-io
+# magical_mebel project
